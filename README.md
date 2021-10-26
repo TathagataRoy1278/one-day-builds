@@ -7,3 +7,4 @@
 Mainly used for the times when you think that you dont have enough green contribution squares and you just use this to get them.
 Well I do have self respect so even though this works, I've never used it.
 
+Or atleast I think so
